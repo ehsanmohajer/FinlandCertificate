@@ -34,7 +34,7 @@ The **Finland Studies** course is part of the **Talent Boost** initiative, coord
 ## 🏅 Certification  
 I have successfully completed this course and earned a certificate of achievement. 🎉  
 
-🔗 **Learn more & enroll:** [Finland Studies Course](https://openlearning.aalto.fi/course/view.php?id=255))  
+🔗 **Learn more & enroll:** [Finland Studies Course](https://openlearning.aalto.fi/course/view.php?id=255) 
 
 ---
 
